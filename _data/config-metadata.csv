@@ -3,6 +3,7 @@ title,Title,
 creator,Creator,
 date,Date Created,
 caption,Caption,
+author, Author
 description,Description,
 subject,Subjects,true
 location,Location
