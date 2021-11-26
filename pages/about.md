@@ -28,11 +28,21 @@ The Terrapin tower and the visual culture associated with it highlights the impo
 
 
 
+<br>
+
+<br>
+
+<br>
+
+<br>
+
+<br>
+
+<br>
 
 
 
-
-                                                               Bibliography
+Bibliography
 
 
 Berton, Pierre. Niagara: A History of the Falls. State University of New York Press, 2009. https://books.google.ca/books?id=P_Rr06A2H6UC&pg=PA20&redir_esc=y#v=onepage&q&f=false
