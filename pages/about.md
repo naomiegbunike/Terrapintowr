@@ -32,7 +32,7 @@ During the peak of its popularity the Terrapin tower was essentially an observat
  <br>
  <br>
  
-The Terrapin tower and the visual culture associated with it highlights the importance improvements of photography in the 19th century had on tourist sites, landmarks, and really the sharing and collecting of images in general. Due to the progression of photography, stereo cards and prints of the Terrapin tower could be made in large numbers and sold to different classes of people (not just the extremely wealthy) to advertise the Niagra falls and the tower as an observatory. These photographs, being as small and portable as they were, would travel with people and attract more visitors to the tower. This kind of utilization of visual culture would not have been as straightforward or even possible before photography. 
+The Terrapin tower and the visual culture associated with it highlights the importance improvements of photography in the 19th century had on tourist sites, landmarks, and really the sharing and collecting of images in general. Due to the progression of photography, stereo cards and prints of the Terrapin tower could be made in large numbers and sold to different classes of people (not just the extremely wealthy) to advertise the Niagra falls and the tower as an observatory. These photographs being as small and portable as they were, would travel with people and attract more visitors to the tower. This kind of utilization of visual culture would not have been as straightforward or even possible before photography. 
 
 
 
