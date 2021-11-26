@@ -14,6 +14,8 @@ credits: true
 
 ## About the Collection
 
+<br>
+
 The Terrapin Tower was built by General Pankhurst Whitney in 1829, and it was the first of the towers to be built at the Niagara Falls (Niagara Falls Info 2017). The tower was located on the western tip of Goat Island at the edge of the Canadian Horseshoe falls. Goat Island, where the Terrapin tower was built on, was owned by General Peter Porter and his brother Augustus Porter, who gained possession of the site in 1816, making them the American owners of the site (Berton 2009, 20-29). It was the Porter brothers who initially built a 300-foot wooden bridge (visible in multiple photos in this exhibition) on the Terrapin rocks which were situated just off the edge of the Niagra Falls; The Terrapin Tower was later added to this bridge (Niagra Falls Info 2017).
 
  The Terrapin tower, which was circular shaped and measured 12 metres in height and 3.7 m in diameter, offered tourists an unmatched view of the Falls and the boiling gorge below it (Niagara Falls Info 2017). The Terrapin tower’s interior included a spiral staircase from its bottom leading to a small door at the peak of the tower, which then led to circular balcony surrounded by metal railing on the exterior of the tower (Niagra Falls info 2017). Overall, the tower was built in such a way that it offered visitors an extraordinary view as well as a level of safety and comfort. Due to this fact, the tower was an incredibly popular observatory structure to overlook the Niagra Falls at the time of its existence, with the only other major observatory on the Falls being Prospects point which was further downriver (Berton 2009, 20-29). It is no surprise then, that the Terrapin Tower rapidly attracted many visitors to the Niagara Falls.
