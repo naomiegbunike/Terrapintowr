@@ -32,7 +32,7 @@ The Terrapin tower and the visual culture associated with it highlights the impo
 
 
 
-                                                                       Bibliography
+                                                                   Bibliography
 
 Niagara Falls Info, February 7, 2017. “History of Niagara Falls Towers - Terrapin Point Tower, Niagara Falls, New York..” https://www.niagarafallsinfo.com/niagara-falls-history/niagara-falls-tourism-history/niagara-falls-tower-history/terrapin-point-tower/. 
 
