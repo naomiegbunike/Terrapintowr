@@ -34,9 +34,10 @@ The Terrapin tower and the visual culture associated with it highlights the impo
 
                                                                Bibliography
 
-Niagara Falls Info, February 7, 2017. “History of Niagara Falls Towers - Terrapin Point Tower, Niagara Falls, New York..” https://www.niagarafallsinfo.com/niagara-falls-history/niagara-falls-tourism-history/niagara-falls-tower-history/terrapin-point-tower/. 
 
 Berton, Pierre. Niagara: A History of the Falls. State University of New York Press, 2009. https://books.google.ca/books?id=P_Rr06A2H6UC&pg=PA20&redir_esc=y#v=onepage&q&f=false
+
+Niagara Falls Info, February 7, 2017. “History of Niagara Falls Towers - Terrapin Point Tower, Niagara Falls, New York..” https://www.niagarafallsinfo.com/niagara-falls-history/niagara-falls-tourism-history/niagara-falls-tower-history/terrapin-point-tower/. 
 
 Vanderwilt, Dirk Niagara Falls: With the Niagara Parks, Clifton Hill, and Other Area Attractions. Channel Lake, Inc., (2007). ISBN 978-0-9792043-7-1  
 
